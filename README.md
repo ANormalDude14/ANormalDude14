@@ -1,4 +1,4 @@
-i like cereal
+-i like cereal
 
 -AreYaWinning#1909
 
